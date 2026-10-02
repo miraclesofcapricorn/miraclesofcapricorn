@@ -1,4 +1,4 @@
-## GAMZEE
+## MiRaClEs
 ![](https://komarev.com/ghpvc/?username=finn1sh&color=lightgrey&style=plastic) 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
  ![wow](https://files.catbox.moe/2trqk9.gif)
